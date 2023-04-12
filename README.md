@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **riteshmanusmare027@gmail.com**
 
-- 📄 Know about my experiences [https://riteshresume.my.canva.site/](https://riteshresume.my.canva.site/)
+- 📄 Know about my experiences [Resume](https://riteshresume.my.canva.site/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
